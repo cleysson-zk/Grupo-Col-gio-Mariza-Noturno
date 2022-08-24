@@ -1,1 +1,3 @@
-# Grupo-Col-gio-Mariza-Noturno
+# Grupo-Colegio-Mariza-Noturno
+## Turma de Pensamento Computacional
+🌟🌟
